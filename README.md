@@ -1,0 +1,1 @@
+# map_of_rinks_people_and_income
